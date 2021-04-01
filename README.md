@@ -1,6 +1,6 @@
 ### Hi I'm Ahshante 👋
 
-## I'm a extroverted introvert and I love to learn!
+## I'm an extroverted introvert and I love to learn!
 
 - 🔭 I’m currently working on my life! Trying to learn new skills and building a better future for myself!
 - 🌱 I’m currently learning about frontend coding! I am a newbie!
